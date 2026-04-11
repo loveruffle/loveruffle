@@ -1,5 +1,9 @@
 ![Untitled826_20260411202733.png](https://github.com/user-attachments/assets/911c5671-b4e2-4c76-965a-62d23d62ce5f)
 ![Tumblr_l_3713271879653173.gif](https://github.com/user-attachments/assets/bbf9543e-0bbb-4650-a428-0613d95f0eb5)
+![Tumblr_l_3713412791395335.gif](https://github.com/user-attachments/assets/e1c3f247-d41c-4058-94a9-162af06b1928)
+![Tumblr_l_3713420755444874.gif](https://github.com/user-attachments/assets/f62dfb54-04c5-44d0-a697-42829986b805)
+
+
 
 int pls. plslpslsl i dont bite
 
