@@ -1,8 +1,10 @@
 ![Untitled826_20260411202733.png](https://github.com/user-attachments/assets/911c5671-b4e2-4c76-965a-62d23d62ce5f)
+![Tumblr_l_3713271879653173.gif](https://github.com/user-attachments/assets/bbf9543e-0bbb-4650-a428-0613d95f0eb5)
 
 int pls. plslpslsl i dont bite
 
 Im always near spawn / with oomfs
+
 
 <!--
 **loveruffle/loveruffle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
