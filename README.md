@@ -1,7 +1,9 @@
+${\text{\color{#606060} thanks  \color{#61657B} to ;  \color{#66668C} @pt-fashion,  \color{#6060B1} @title-town  \color{#5876B3} @pt-walk-of-fame  \color{#6B95BF} @pt-hall-of-media  \color{#68BCCD} @pt-nominations  \color{#8ED2D9} @pt-of-awesomeness  \color{#A7C4CE} @ponychievements}}$
+${\text{\color{#606060} ponytowns  \color{#61657B} self  \color{#66668C} proclaimed  \color{#6060B1} isagi  \color{#5876B3} yoichi}}$
+￴ ￴ ￴    ￴ ￴ ￴ ￴￴ ￴ ￴ ￴￴￴ ￴ ￴ ￴￴ ￴ ￴￴ ￴ ￴ ￴￴ ￴ ￴[![Hits](https://hits.sh/github.com/parameowia.svg?style=plastic&label=puzzle%20pieces&color=8ED2D9&labelColor=6060B1)](https://hits.sh/github.com/parameowia/)
 <img width="2170" height="576" alt="Image" src="https://github.com/user-attachments/assets/6d005d5c-d825-4e18-9a74-04f7fa0829bc" />
-
+[![Typing SVG](https://readme-typing-svg.demolab.com/?font=Serif&color=6060B1&lines=THE+WINNER+TAKES+IT+AAALLLLLLLLL;SO+THE+WINNER,+TAKES+IT+ALL;AND+THE+LOSER,+HAS+TO+FALLLLLLL.)](https://git.io/typing-svg) 
 <img width="656" height="576" alt="Image" src="https://github.com/user-attachments/assets/119241ec-b20f-4a83-9a3d-9ff038dcc7c0" />
-
 ${\text{\color{#606060} interact  \color{#61657B} and  \color{#66668C} c×h  \color{#6060B1} encouraged  \color{#5876B3} unless  \color{#6B95BF} stated  \color{#68BCCD} otherwise  \color{#8ED2D9} okay?  \color{#A7C4CE} okay 😳😳}}$
 ${\text{\color{#606060} im  \color{#61657B} not  \color{#66668C} online  \color{#6060B1} much  \color{#5876B3} but  \color{#6B95BF} you  \color{#68BCCD} can  \color{#8ED2D9} dm / message  \color{#A7C4CE} me  \color{#B4C9D4} to  \color{#C4D0D9} play   \color{#D1D8E1} !!!}}$
 ${\text{\color{#606060} pls  \color{#61657B} read  \color{#66668C}  \color{#6060B1} prns.cc  \color{#5876B3} for  \color{#6B95BF} more  \color{#68BCCD} info  \color{#8ED2D9} and  \color{#A7C4CE} other  \color{#B4C9D4} stuff}}$
